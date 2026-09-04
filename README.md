@@ -1,0 +1,1 @@
+# SherRig-assets
